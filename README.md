@@ -1,2 +1,2 @@
 # sketchesWIP
-This repositories contains mersonal WIP under no specifc projects. Just sketches
+This repositories contains personal Work In Progress files under no specifc project. Just sketches!!!
